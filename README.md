@@ -1,6 +1,6 @@
 <h2>鸠摩搜书官网，海量电子书免费下载|网页版入口</h2>
 <p>鸠摩搜书是一个专注于电子书资源搜索的在线平台，致力于为用户提供全面、便捷的电子书搜索和阅读服务。其资源覆盖了文学、历史、哲学、社会科学、自然科学、医学、工程技术等多个学科领域，满足了不同读者的阅读需求。鸠摩搜书整合了国内外多个知名电子书资源库，如豆瓣、百度文库、百度网盘、国学大师、微盘、孔夫子网等，为用户提供海量的电子书资源，包括小说、教材、学术论文、技术文档、古籍文献等。此外，鸠摩搜书还支持多种格式的电子书下载，如PDF、TXT、EPUB、AZW3等，方便用户根据需求选择合适的格式。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/5758.html" target="_blank"><strong>鸠摩搜书官网最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://jiumosoushu.sodanav.com/" target="_blank"><strong>鸠摩搜书官网最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
